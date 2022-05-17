@@ -1,4 +1,4 @@
-# buluckart-privacy
+# Privacy policy
 Privacy Policy for buluckart app
 Privacy Policy
 BULUCKART HYPERMARKETS built the BulucKart app as a Free app. This SERVICE is provided by BULUCKART HYPERMARKETS at no cost and is intended for use as is.
